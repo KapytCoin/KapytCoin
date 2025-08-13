@@ -1,1 +1,1 @@
-![photo-1713630019375-f483a9729a8b](https://github.com/user-attachments/assets/e07a90bc-3efc-4ebe-8a37-22e1a0e9c1df)
+![doroga_gory_les_144909_1400x1050](https://github.com/user-attachments/assets/f98984cc-dc9f-4e8e-acaa-0d3369e789bd)
