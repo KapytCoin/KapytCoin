@@ -1,1 +1,1 @@
-![doroga_gory_les_144909_1400x1050](https://github.com/user-attachments/assets/f98984cc-dc9f-4e8e-acaa-0d3369e789bd)
+<img width="1920" height="1080" alt="image" src="https://github.com/user-attachments/assets/01fede72-f460-4cba-b314-f9bfa63df0c2" />
