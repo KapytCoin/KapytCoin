@@ -1,4 +1,4 @@
-<h3 align="center">🛠️ my main tools</h3>
+<h3 align="center">🛠️ my main tools 🛠️</h3>
 
 <p align="center">
   <img src="https://cdn.jsdelivr.net/gh/devicons/devicon/icons/php/php-original.svg" height="50" alt="PHP" />
